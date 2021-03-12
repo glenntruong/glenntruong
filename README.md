@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Glenn
-- 👀 I’m interested in techologies, travelling to the places that I've never been, reading books, learning new things and acquiring new knowledges.
+- 👀 I’m interested in techologies, travelling to the places that I've never been, reading books, learning new things, and acquiring new knowledges.
 - 🌱 I’m currently learning some new technologies and skills in new languages.
 - 📫 Contact me through this email :) 
 
